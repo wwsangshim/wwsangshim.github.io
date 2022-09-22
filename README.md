@@ -1,2 +1,0 @@
-# wwsangshim.github.io
-HI😀
